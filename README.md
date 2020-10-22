@@ -1,0 +1,2 @@
+# Mindset
+Note to self
